@@ -2,7 +2,7 @@
 
 ## Part 0
 
-[Link to video](https://drive.google.com/file/d/1LSp1Yka6DKUtL98hkpjbelWwR5MuGK6a/view?usp=drive_link)
+[Link to video](https://drive.google.com/file/d/15G0ONgP7RZJ_C8p_kwxGJC4ye0zNGwf4/view?usp=sharing)
 
 ## Part1
 
